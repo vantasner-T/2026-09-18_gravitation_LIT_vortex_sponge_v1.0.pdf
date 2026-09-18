@@ -1,0 +1,1 @@
+# 2026-09-18_gravitation_LIT_vortex_sponge_v1.0.pdf
